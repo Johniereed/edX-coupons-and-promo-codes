@@ -1,6 +1,6 @@
 # edX Coupon & Promo Code | Get 50% Discount Deals
 
-Are you searching for the most recent edX coupon codes? You're in the right place.
+Are you searching for the most recent [edX coupon](https://bit.ly/4eVs6WQ) codes? You're in the right place.
 
 Want to learn artificial intelligence and save money on your preferred Harvard University courses?
 
