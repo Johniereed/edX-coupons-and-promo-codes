@@ -6,23 +6,23 @@ Want to learn artificial intelligence and save money on your preferred Harvard U
 
 I have listed all available edX promo codes & discounts in this article.
 
-## Official edX Coupon (30% Off)
+## edX Coupon | Get 30% Off
 
 Get a [30% discount](https://bit.ly/4eVs6WQ) with this edX coupon code, which offers top-notch courses from prestigious universities and institutions.
 
-## Get 50 Off (edX Promo Code)
+## edX Coupon Code: Get 50 Off
 
 With this edX promo code, get [50% Off](https://bit.ly/4eVs6WQ) on a wide range of courses, from data science to business management and everything in between.
 
-## Claim 40% Discount On All edX Certificates
+## edX Discount Code [40% Off On All Certificates]
 
 Get a [30% off](https://bit.ly/4eVs6WQ) deal on all certificates with this edX discount code. Whether you're interested in project management, digital marketing, or any other field, this discount is a no-brainer.
 
-## Get 20% OFF on edX Courses
+## edX 20% OFF Promo Code
 
 With this [20% off](https://bit.ly/4eVs6WQ) edX promo code, you can get a discount on individual courses that you want to pursue and explore your interests without breaking the bank.
 
-## edX Coupon Code: Get 10% OFF
+## edX Discount Code: Get 10% OFF
 
 Even if you miss out on the bigger discounts, you can still save with a [10% off](https://bit.ly/4eVs6WQ) edX Coupon code. These are often available throughout the year, so keep your eyes peeled for the latest deals.
 
@@ -30,13 +30,13 @@ Even if you miss out on the bigger discounts, you can still save with a [10% off
 
 Get [30% off](https://bit.ly/4eVs6WQ) on edX top-tier plans. Simply verify your student status, and you'll be eligible for exclusive discounts on courses and programs.
 
-## Flat 30% Off on edX [Expired]
+## edX Promo Code [30% Off On Everything] [Expired]
 
 Did you miss the chance to save [30% on edX courses](https://bit.ly/4eVs6WQ)? Don't worry; these deals tend to come around quite often. Keep checking back for the next big sale, and you might just catch the flat 30% discount before it expires.
 
 ## Flat 30% OFF On edX Summer Sale Offers [Expired]
 
-Summer is the perfect time to learn something new, and edX knows it. Last year, they offered a flat [30% off](https://bit.ly/4eVs6WQ%5C) on all courses during their summer sale. With edX discount code.
+Summer is the perfect time to learn something new, and edX knows it. Last year, they offered a flat [30% off](https://bit.ly/4eVs6WQ%5C) on all courses during their summer sale, with edX discount code.
 
 ## edX Coupon Code 70% OFF on Bootcamps [Expired]
 
