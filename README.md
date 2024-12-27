@@ -4,7 +4,7 @@ Are you searching for the most recent [edX coupon](https://bit.ly/4eVs6WQ) codes
 
 Want to learn artificial intelligence and save money on your preferred Harvard University courses?
 
-I have listed all available edX promo codes & discounts in this article.
+I have listed all available [edX promo codes & discounts](https://johniereed.github.io/edx-coupon-code/) in this article.
 
 ## edX Coupon | Get 30% Off
 
